@@ -1,2 +1,2 @@
-# My
-About me
+# About me
+MNusze uzopełnic
